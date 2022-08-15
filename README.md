@@ -1,2 +1,6 @@
 # wsa
-cara install aplikasi android di windows 11, buka aplikasi android di windows 11, cara buka aplikasi android di windows 11, download aplikasi android di windows 11, install aplikasi android di windows 11, cara jalankan aplikasi android di windows 11, menjalankan aplikasi android di windows 11, cara menginstall aplikasi android di windows 11, cara aplikasi android di windows 11, cara install aplikasi android di windows 11, cara menjalankan aplikasi android di windows 11, cara pasang aplikasi android di windows 11, cara instal aplikasi android di laptop windows 11, pasang aplikasi android di windows 11, cara pasang aplikasi android di windows 11, cara pakai aplikasi android di windows 11
+## __Tutorials__
+
+[__install aplikasi android di windows 11 tanpa emulator__](https://www.kudet.id/2022/08/install-android-windows11.html)
+
+![alt text](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEi5Qv92tynRdz4HRM5GbjVDuZ6mPJLVToJGYjMBLP8eI_a4Hj2K5ZubdC765QG5y_EYgwAQJzsYqrvVLMjCAin4-PRH0JOAwpUcrJBffgWV89S-iGNBniHW_tBNavyffLhuL7ioDepBDvGxK6yIaCg5ORuWqvNpBJ0npcTMDREGTe9LSxQyjJGIv_2f_A/s1200/Install%20Aplikasi%20Android%20di%20Windows%2011%20tanpa%20Emulator%20-%20Akses%20Langsung%20dari%20Start%20Menu.png)
